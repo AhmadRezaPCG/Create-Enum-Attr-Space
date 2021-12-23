@@ -17,6 +17,6 @@ for more use it you can use these script after import module :
 
 for more information you can see my videos on my instagram page .
 
-I hope you to enjoy and use it .
+I hope you enjoy and use it .
 
 insta : ahmadrr_cg99
